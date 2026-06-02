@@ -1,4 +1,4 @@
-# Hi, guys! ![HelloHiGIF](https://github.com/Semanur-Ucdag/Semanur-Ucdag/assets/103859993/7dc3ed68-f34f-46a5-9ab5-2839556bbdf6)
+# Hello Everyone!
 
 
 
